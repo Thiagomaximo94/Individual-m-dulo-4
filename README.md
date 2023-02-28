@@ -1,1 +1,1 @@
-# Individual-m-dulo-4
+# Individual-modulo-4
